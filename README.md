@@ -4,6 +4,7 @@ Hi, I’m Chad Phillippi
 Manager of Strategic Services - Talent,at Dayforce. I am a storyteller and creator of innovative solutions that make life easier and more meaningful. My portfolio spans web apps, AI-driven tools, and creative writing projects.
 
 Founder of GoCare – A platform connecting nurses, CNAs, caregivers, and housekeepers with elderly and disabled individuals for trusted, convenient care. View Prototype: https://elder-care-connect--chadphillippi1.replit.app
+
 Published Author – Explore my books on theology, leadership, and creative storytelling:
 
 - The House on Chas Ross Road - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0DT9T3RXM
