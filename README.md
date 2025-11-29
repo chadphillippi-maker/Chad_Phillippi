@@ -10,7 +10,7 @@ Published Author – Explore my books on theology, leadership, and creative stor
 - The House on Chas Ross Road - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0DT9T3RXM
 - The Fast Track Novel: Idea to Published in 90 Days - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0DTBPTZ1R
 - Jesus and the Equality of Women - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0FJC9NZ32 
-- The Nephilim Agenda (3 part series) - Coming January 2026
+- The Nephilim Agenda (3-part novela series) - Coming January 2026
 
 
 
