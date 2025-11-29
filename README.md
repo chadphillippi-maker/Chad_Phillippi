@@ -19,6 +19,7 @@ Open to collaborations on healthcare tech, AI solutions, and creative projects (
 
 Connect with me: LinkedIn - https://www.linkedin.com/in/chad-phillippi/ | Email: chad.phillippi@icloud.com 
 
+
 Repository layout
 - README.md — this overview (you are here)
 - PORTFOLIO.md — curated portfolio entries with templates you can reuse
