@@ -2,10 +2,23 @@
 
 #Portfolio & Prompt Engineering Showcase
 
-Hi — welcome to my portfolio repository. This repo is organized to showcase:
-- AI Prompt Engineering work (prompts, variations, evaluation & results)
-- Short projects and demos that demonstrate product thinking and execution
-- Readable case-style writeups that recruiters and hiring managers can skim
+Hi, I’m Chad Phillippi
+Manager of Strategic Services - Talent,at Dayforce. I am a storyteller and creator of innovative solutions that make life easier and more meaningful. My portfolio spans web apps, AI-driven tools, and creative writing projects.
+
+Founder of GoCare – A platform connecting nurses, CNAs, caregivers, and housekeepers with elderly and disabled individuals for trusted, convenient care. View Prototype: https://elder-care-connect--chadphillippi1.replit.app
+Published Author – Explore my books on theology, leadership, and creative storytelling:
+
+The House on Chas Ross Road - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0DT9T3RXM
+Jesus and the Equality of Women - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0FJC9NZ32 
+The Fast Track Novel: Idea to Published in 90 Days - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0DTBPTZ1R
+The Nephilim Agenda (3 part series) - Coming January 2026
+
+
+
+Passionate about building apps that solve real-world problems, blending technology with empathy.
+Open to collaborations on healthcare tech, AI solutions, and creative projects (Ghost Writing, AI Optimization, AI Consulting, Public Speaking, Documentation).
+
+Connect with me: LinkedIn - https://www.linkedin.com/in/chad-phillippi/ | Email: chad.phillippi@icloud.com 
 
 Repository layout
 - README.md — this overview (you are here)
@@ -22,7 +35,7 @@ How to use this repo
 
 Contact
 - GitHub: @chadphillippi-maker
-- LinkedIn: https://www.linkedin.com/in/chad-phillippi/
+- LinkedIn: https://www.linkedin.com/in/chad-phillippi/ | Email: chad.phillippi@icloud.com 
 
 License
 - This repo uses the MIT license. See LICENSE for details.
