@@ -13,7 +13,7 @@ Published Author – Explore my books on theology, leadership, and creative stor
 
 
 
-Passionate about building apps that solve real-world problems, blending technology with empathy.
+Passionate about building apps that solve real-world problems, blending technology with empathy, and all types of writing projects.
 Open to collaborations on healthcare tech, AI solutions, and creative projects (Ghost Writing, AI Optimization, AI Consulting, Public Speaking, Documentation).
 
 Connect with me: LinkedIn - https://www.linkedin.com/in/chad-phillippi/ | Email: chad.phillippi@icloud.com 
