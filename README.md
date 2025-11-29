@@ -8,10 +8,10 @@ Manager of Strategic Services - Talent,at Dayforce. I am a storyteller and creat
 Founder of GoCare – A platform connecting nurses, CNAs, caregivers, and housekeepers with elderly and disabled individuals for trusted, convenient care. View Prototype: https://elder-care-connect--chadphillippi1.replit.app
 Published Author – Explore my books on theology, leadership, and creative storytelling:
 
-The House on Chas Ross Road - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0DT9T3RXM
-Jesus and the Equality of Women - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0FJC9NZ32 
-The Fast Track Novel: Idea to Published in 90 Days - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0DTBPTZ1R
-The Nephilim Agenda (3 part series) - Coming January 2026
+- The House on Chas Ross Road - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0DT9T3RXM
+- Jesus and the Equality of Women - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0FJC9NZ32 
+- The Fast Track Novel: Idea to Published in 90 Days - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0DTBPTZ1R
+- The Nephilim Agenda (3 part series) - Coming January 2026
 
 
 
