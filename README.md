@@ -14,7 +14,7 @@ Published Author – Explore my books on theology, leadership, and creative stor
 
 
 
-Passionate about building apps that solve real-world problems, blending technology with empathy, and all types of writing projects.
+I was fortunate to be listed on the Marqui Who's Who in America list for 2025 for my passion to solve real-world problems, blending technology with empathy, along with my many writing projects.
 Open to collaborations on HR or healthcare tech, AI solutions (AI Optimization, AI Consulting), and creative projects (Ghost Writing, Public Speaking, and Documentation).
 
 Connect with me: LinkedIn - https://www.linkedin.com/in/chad-phillippi/ | Email: chad.phillippi@icloud.com 
