@@ -5,15 +5,10 @@ Manager of Strategic Services - Talent,at Dayforce. I am a storyteller and creat
 
 Founder of GoCare – A platform connecting nurses, CNAs, caregivers, and housekeepers with elderly and disabled individuals for trusted, convenient care. View Prototype: (https://gocare-546e777c.base44.app)
 
-Published Author – Explore my books on theology, leadership, and creative storytelling:
+Published Author – Explore my books on leadership and creative storytelling:
 
-- The House on Chas Ross Road - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0DT9T3RXM
-- The Fast Track Novel: Idea to Published in 90 Days - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0DTBPTZ1R
-- Jesus and the Equality of Women - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0FJC9NZ32 
-- The Nephilim Agenda (3-part novela series) - Book One, The Fall: https://a.co/d/8pFlDrO - Book Two release: February 2026
+- Author Profile and four published books: https://www.amazon.com/C-E-Phillippi/e/B0DTH4T4KS/ref=dp_byline_cont_ebooks_1 
 - All my digital products (From Decluttering your digital life to reviving an old Macbook): https://chadventure1876.gumroad.com
-
-
 
 I was fortunate to be listed on the Marqui Who's Who in America list for 2025 for my passion to solve real-world problems, blending technology with empathy, along with my many writing projects.
 Open to collaborations on HR or healthcare tech, AI solutions (AI Optimization, AI Consulting), and creative projects (Ghost Writing, Public Speaking, and Documentation).
