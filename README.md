@@ -7,6 +7,7 @@ Founder of GoCare – A platform connecting nurses, CNAs, caregivers, and housek
 
 Published Author – Explore my books on leadership and creative storytelling:
 
+- Visit my website: https://cephillippi.com/
 - Author Profile and four published books: https://www.amazon.com/C-E-Phillippi/e/B0DTH4T4KS/ref=dp_byline_cont_ebooks_1 
 - All my digital products (From Decluttering your digital life to reviving an old Macbook): https://chadventure1876.gumroad.com
 
