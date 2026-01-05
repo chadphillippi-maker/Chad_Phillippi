@@ -11,6 +11,7 @@ Published Author – Explore my books on theology, leadership, and creative stor
 - The Fast Track Novel: Idea to Published in 90 Days - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0DTBPTZ1R
 - Jesus and the Equality of Women - https://kdp.amazon.com/amazon-dp-action/us/dualbookshelf.marketplacelink/B0FJC9NZ32 
 - The Nephilim Agenda (3-part novela series) - Coming January 2026
+- All my digital products (From Decluttering your digital life to reviving an old Macbook): https://chadventure1876.gumroad.com/subscribe| https://chadventure1876.gumroad.com
 
 
 
