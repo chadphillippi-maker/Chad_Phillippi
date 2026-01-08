@@ -1,7 +1,7 @@
 # Chad_Phillippi
 
 Hi, I’m Chad Phillippi
-Manager of Strategic Services - Talent,at Dayforce. I am a storyteller and creator of innovative solutions that make life easier and more meaningful. My portfolio spans web apps, AI-driven tools, and creative writing projects.
+Manager of Strategic Services - Talent, at Dayforce HCM. I am a storyteller and creator of innovative solutions that make life easier and more meaningful. My portfolio spans web apps, AI-driven tools, and creative writing projects.
 
 Founder of GoCare – A platform connecting nurses, CNAs, caregivers, and housekeepers with elderly and disabled individuals for trusted, convenient care. View Prototype: (https://gocare-546e777c.base44.app)
 
